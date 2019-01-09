@@ -27,3 +27,4 @@ In just a few months citizens began to rebuild the colony, no they still didn't 
 It was just a beginning, No one knows what they would end up as.
 
 > In progress..
+The story continues in my Wattpad account, [click here](https://www.wattpad.com/myworks/172837869-the-world-of-open-source) to read!
